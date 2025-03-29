@@ -1,5 +1,4 @@
-## 
-
+number 1 ivan kinnie, defender, AND simp 😛
 <!--
 **0143leoyaoi/0143leoyaoi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
